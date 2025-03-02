@@ -1,1 +1,1 @@
-hello các anh của tớ 
+hello quý dị
